@@ -1,4 +1,6 @@
 # bible-selling-ebooks-ebay-online
+https://marksight.com/blog/digital-products-on-ebay
+
 
 https://andrewminalto.com/how-to-sell-an-ebook-on-ebay/
 
