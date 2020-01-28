@@ -26,7 +26,7 @@ New Testament has special title page: "The New Testament of Our Lord and Saviour
 
 https://www.thomasnelsonbibles.com/product/kjv-study-bible-large-print-hardcover-red-letter-edition/
 
-
+https://www.goodreads.com/book/show/1923820.Holy_Bible
 Goodreads Description book url id 1923820.Holy_Bible
 
 Holy Bible: King James Version 
