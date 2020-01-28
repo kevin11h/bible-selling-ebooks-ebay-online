@@ -1,4 +1,27 @@
 # bible-selling-ebooks-ebay-online
 ![](https://kbimages1-a.akamaihd.net/1cb7811d-7ab8-4df9-a0e9-9379dbeb4b2e/1200/1200/False/illustrated-large-print-bible-the-holy-bible-kjv-authorized-king-james-version-special-kobo-edition-complete-old-testament-new-testament.jpg)
 
+http://www.gasl.org/refbib/Bible_King_James_Version.pdf
+
+https://searchworks.stanford.edu/view/2014732
+
+The Holy Bible : containing the Old and New Testaments, translated out of the original tongues and with the former translations diligently compared & revised : set forth in 1611 and commonly known as the King James version
+
+Uniform Title
+Bible. English. Authorized 1938.
+Imprint
+New York : American Bible Society, [1938]
+Physical description
+848, 263 p. : maps ; 19 cm.
+
+Description
+ Creators/Contributors
+Contributor
+American Bible Society.
+ Bibliographic information
+Publication date
+1938
+Note
+New Testament has special title page: "The New Testament of Our Lord and Saviour Jesus Christ, translated out of the original Greek and with the former translations diligently compared & revised."
+
 https://www.thomasnelsonbibles.com/product/kjv-study-bible-large-print-hardcover-red-letter-edition/
