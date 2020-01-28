@@ -25,3 +25,12 @@ Note
 New Testament has special title page: "The New Testament of Our Lord and Saviour Jesus Christ, translated out of the original Greek and with the former translations diligently compared & revised."
 
 https://www.thomasnelsonbibles.com/product/kjv-study-bible-large-print-hardcover-red-letter-edition/
+
+
+Goodreads Description book url id 1923820.Holy_Bible
+
+Holy Bible: King James Version 
+by the Anonymous, Apostles, Word of God, Holy Spirit, Moses, Jesus, Solomon, Isaiah, Jeremiah, Ezekial, Daniel, Joshua
+ 4.42  ·   Rating details ·  205,687 ratings  ·  5,263 reviews
+FEATURES:
+Faithful and Easy-to-Read New King James Version.
