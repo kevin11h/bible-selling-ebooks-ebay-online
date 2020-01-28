@@ -1,4 +1,13 @@
 # bible-selling-ebooks-ebay-online
+
+https://andrewminalto.com/how-to-sell-an-ebook-on-ebay/
+
+https://www.amazon.com/HOW-SELL-EBOOKS-EBAY-possible-ebook/dp/B00O66IBL4
+
+https://www.moneymindedmom.com/make-money-selling-ebooks-passive-income/
+
+https://www.thebalancesmb.com/ebay-classifieds-more-robust-than-craigslist-1139944
+
 ![](https://kbimages1-a.akamaihd.net/1cb7811d-7ab8-4df9-a0e9-9379dbeb4b2e/1200/1200/False/illustrated-large-print-bible-the-holy-bible-kjv-authorized-king-james-version-special-kobo-edition-complete-old-testament-new-testament.jpg)
 
 http://www.gasl.org/refbib/Bible_King_James_Version.pdf
