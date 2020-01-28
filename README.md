@@ -34,3 +34,6 @@ by the Anonymous, Apostles, Word of God, Holy Spirit, Moses, Jesus, Solomon, Isa
  4.42  ·   Rating details ·  205,687 ratings  ·  5,263 reviews
 FEATURES:
 Faithful and Easy-to-Read New King James Version.
+
+
+https://www.eden.co.uk/community/what-are-the-dimensions-of-this-bible-please-p119936
